@@ -1,0 +1,31 @@
+### Define research problem
+- Research problem is a specific issue, difficulty, contradiction, conflict, controversy or gap in knowledge that you will aim  to address in your research.
+	- if we find something that we disagree so in order to reject those theory we need to do research.
+- Research problem is important because:
+	- Established the important of the topic
+	- Create reader interest
+	- Without a well-defined research problem. you are likely to end up with an unfocused and unmanageable project
+	- end up repeating what other have researched
+- Source of research problem
+	- Personal experience :  something that bothering us 
+	- Practical experience 
+	- Critical appraisal of the failure 
+	- Previous research
+	- Existing theory
+	- Brainstorming 
+	- Social issues
+	- Folklores 
+	- Institution 
+	- Exposure of field situation
+- [ ] **find research topic**
+- to define a good topic
+	- Is it a good topic ?
+	- Is it new ?
+	- Is it has big impact ?
+	- How many people benefit from it ?
+	- Can you do it ?
+	- Are you capable of doing it ?
+	- How much time you need in order to do it ?
+	- Could it be commercialize ?
+### Define research questions
+### Define research questions
